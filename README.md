@@ -1,0 +1,1 @@
+# yngw-bass-competition
